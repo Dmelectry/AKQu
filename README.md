@@ -1,2 +1,2 @@
 # AKQu
-~remember something~
+~ memorize something ~
